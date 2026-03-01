@@ -1,4 +1,4 @@
-Made by: DrFishface // vk6
+Made by: DrFishface
 
 Repository link:
 
